@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi hi.
 ![Screenshot (10795)](https://github.com/user-attachments/assets/0a2a258d-5417-42c8-b655-cb971a2dae0b)
 
 <!--
